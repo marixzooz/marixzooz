@@ -1,2 +1,2 @@
-Olá, me chamo Maria Eduarda Antunes Da Silva, tenho 15 anos, nasci em Altamira do Paraná, cresci aqui mais com 4 anos de idade minha mãe resolveu ir embora pra Moreira Sales com meu padrasto, mais com 13 anos retornei para Altamira e estou morando com meus avós.
+Olá, me chamo Maria Eduarda Antunes Da Silva, tenho 15 anos, nasci em Altamira do Paraná, cresci aqui, mais com 4 anos de idade minha mãe resolveu ir embora pra Moreira Sales com meu padrasto, mais com 13 anos retornei para Altamira e estou morando com meus avós.
 Estou no primeiro 1 ano do Ensino Médio, pretendo fazer faculdade de Medicina ou de pscologia, por que pretendo cuidar das pessoas em ambas as partes, prinvipalmente nessa atualidade.
